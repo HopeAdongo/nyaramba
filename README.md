@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @HopeAdongo
+- 👀 I’m interested in helping the vurnarable girls in my society get education
+-
